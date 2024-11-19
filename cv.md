@@ -1,7 +1,6 @@
 # Andreev Anton
 ![photo](https://github.com/user-attachments/assets/c2a50b17-70b2-4a39-9e8e-c10d6b0061ef)
 
-
 ### Contacts:
 **E-mail:** obsos32@gmail.com<br>
 **Telegram:** @anton_kim<br>
